@@ -1,4 +1,4 @@
-El alumnado investigará elementos culturales, naturales y lingüísticos del entorno asturiano para crear productos comunicativos digitales que permitan difundir información relevante sobre Asturias a otros compañeros y familias.
+El alumnadado investigará elementos culturales, naturales y lingüísticos del entorno asturiano para crear productos comunicativos digitales que permitan difundir información relevante sobre Asturias a otros compañeros y familias.
 
 A partir de textos orales, escritos y multimodales, el alumnado desarrollará habilidades de comprensión, expresión oral, escritura guiada, búsqueda de información y uso crítico de herramientas digitales.
 
