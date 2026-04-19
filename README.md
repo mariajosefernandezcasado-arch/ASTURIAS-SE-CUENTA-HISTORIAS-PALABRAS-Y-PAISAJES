@@ -6,4 +6,5 @@ El producto final será doble:
 
 Una infografía interactiva digital sobre un elemento representativo de Asturias (paisaje, tradición, gastronomía, personaje o fiesta).
 Un podcast narrativo o divulgativo donde expliquen oralmente la información trabajada.
+
 La situación integra lectura, escritura, oralidad y alfabetización digital desde una perspectiva competencial y cercana al entorno del alumnado.
